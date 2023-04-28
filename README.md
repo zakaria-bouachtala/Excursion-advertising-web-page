@@ -1,1 +1,1 @@
-# Exersion advertising web page
+# Excursion advertising web page
