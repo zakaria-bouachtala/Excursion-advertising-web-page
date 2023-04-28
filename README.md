@@ -1,1 +1,0 @@
-# Excursion advertising web page
